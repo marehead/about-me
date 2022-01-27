@@ -1,6 +1,6 @@
 -👩🏽‍💻 Olá, eu sou Marina 👩🏽‍💻
--📱Programação e Fotografia
--📚 Estudante
+-📱Programação e Audiovisual🎥
+-📚 Estudante 📚
 
 <!---
 heyMaroka/heyMaroka is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
