@@ -1,7 +1,7 @@
 -👩🏽‍💻 Olá, eu sou Marina 👩🏽‍💻
 -📱Programação e Audiovisual🎥
 -📚 Estudante 📚
--🌈ela/ele/pessoa🏳️‍🌈
+-🌈ela/ele/people🏳️‍🌈
 
 
 <!---
