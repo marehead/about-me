@@ -1,7 +1,7 @@
 -👩🏽‍💻 Hi, I'm Marina 👩🏽‍💻
 -📱Programming and Audiovisual🎥
 -📚studies📚
--🌈ela/she/ele/he/people🏳️‍🌈
+-🌈she/he/people🏳️‍🌈
 
 
 <!---
