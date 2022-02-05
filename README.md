@@ -1,4 +1,4 @@
--👩🏽‍💻 Olá, eu sou Marina 👩🏽‍💻
+-👩🏽‍💻 Olá, me chamo Marina 👩🏽‍💻
 -📱Programação e Audiovisual🎥
 -📚 Estudante 📚
 -🌈ela/ele/people🏳️‍🌈
