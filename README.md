@@ -3,5 +3,10 @@
 -📚studies📚
 -🌈she/he/people
 -🏳️‍🌈genderqueer
-
+- 👩🏽‍💻Currently I'm learning practicing Linux, AWS, Cloud Computing, Python and Javascript
+- 🐱‍🚀I am part of the first class Sysops of the ImpulsoTec Program.
+- 📚studying Science Computing in course online: cc50 of harvard
+- ⚡Curious among other programming languages and IT
+- 🐱‍🐉Fun fact: I love Music more than food
+- 🌈pronoms: elu/they
 
