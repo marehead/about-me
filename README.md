@@ -1,5 +1,5 @@
 -👩🏽‍💻 Hi, I'm Marina 👩🏽‍💻
--📱Programming and Audiovisual🎥
+-💟Programming and Audiovisual💟
 -📚studies📚
 -🌈she/he/people
 -🏳️‍🌈genderqueer
