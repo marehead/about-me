@@ -8,5 +8,5 @@
 - 📚studying Science Computing in course online: cc50 of harvard
 - ⚡Curious among other programming languages and IT
 - 🐱‍🐉Fun fact: I love Music more than food
-- 🌈pronoms: elu/they
+- 🌈pronoms: she/he/elu/they
 
